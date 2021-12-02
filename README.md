@@ -11,6 +11,28 @@ Dlaczego warto dołączyć do ToGoMat?
 jako sieć jesteśmy otwarci na wszystkich operatorów kurierskich, sklepów, magazynów.
 
 
+## Jesteś operatorem kurierskim?
+Dołącz do naszej sieci ToGoMat.Net i zaoferuj klientom możliwość odbioru towaru za pośrednictwem automatów. Zwiększysz konkurencyjność firmy i poszerzysz swoją sieć punktów odbioru towaru.
+
+
+## Chcesz zainwestować?
+Chciałbyś, aby automat paczkowy stanął na Twoim osiedlu, pod Twoim blokiem lub w biurze? 
+Kup lub dzierżaw automat i sam decyduj o lokalizacji i dostępności.
+Możesz wykorzystać go dowolnie do prywatnych celów lub udostępnić publicznie
+
+
+## Masz lokalizację pod automat?
+Jeśli znasz miejsce, w którym powinien stanąć nasz automat towarowy to daj nam o tym znać. 
+Zweryfikujemy tę lokalizację i postaramy się postawić tam maszynę, abyś docelowo mógł cieszyć się z dogodnego miejsca do odbioru swoich towarów.
+
+
+## Jesteś producentem?
+Jeśli produkujesz maszyny do odbioru przesyłek, to skontaktuj się z nami i sprawdź, jak Twoje urządzenia mogą stać się częścią sieci ToGoMat.net
+Współpraca z nami pozwoli Ci poszerzyć rynek zbytu i zyskać nowych klientów.
+
+
+
+
 ## konkurencyjność
 
 Nowe horyzonty, klienci, punkty dostarczania i przechowywania towarów,
